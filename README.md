@@ -17,6 +17,6 @@
 ## Activity:
 
 [![VikramVinc's github activity graph](https://activity-graph.herokuapp.com/graph?username=VikramVinc&theme=github)](https://github.com/VikramVinc/github-readme-activity-graph)
-<a href = "https://github.com/juuswtf"> 
+<a href = "https://github.com/VikramVinc"> 
 <img src = "https://komarev.com/ghpvc/?username=VikramVinc & label= profile%20views & color = 72288A & style = flat">
 </a>
