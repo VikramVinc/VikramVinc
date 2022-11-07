@@ -12,7 +12,7 @@
 ## Contacts📬:
 
   [![My Skills](https://skillicons.dev/icons?i=instagram)](https://instagram.com/the___enthusiastic)
-  [![My Skills](https://skillicons.dev/icons?i=discord)](https://discordapps.com/899067003673903116) 
+  [![My Skills](https://skillicons.dev/icons?i=discord)](https://discord.com/channels/@me/1039179786980966542) 
 
 ## Activity:
 
