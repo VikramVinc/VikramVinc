@@ -8,6 +8,6 @@
                      
 <sub>**It's pretty damn hot here at the core 🥵**</sub>
 
-   >Don't tell this to anyone, humans still didn't figured out the existence of "Quasi star" yet 🤡
+   >Don't tell this to anyone, humans still didn't figured out the existence of "Quasi star"🤡
  
 
